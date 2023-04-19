@@ -1,2 +1,1 @@
-# Group-G
-Group-G
+Al-Jude V. Tubato
